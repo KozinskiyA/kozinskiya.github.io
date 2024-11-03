@@ -1,3 +1,0 @@
-# kozinskiya.github.io
-
-Hello!
